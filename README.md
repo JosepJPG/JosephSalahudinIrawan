@@ -1,2 +1,0 @@
-# PortofolioJosephSalahudinIrawan
-about me
